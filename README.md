@@ -9,6 +9,6 @@
 　<h4 align="center">﹑　  　[RENTRY](https://rentry.co/cptmc)　﹒ 　[ATABOOK](https://cptmc.atabook.org/)　﹒　[PRNS.PAGE](https://pronouns.cc/@LINKEDGUT)　﹑</h3> 　</h3>
 
  
- <h6 align="center">graphic by deepseawav on X</h6>
+ <h6 align="center">art by deepseawav on X</h6>
 
 ###
