@@ -3,12 +3,12 @@
 <div align="center">
 <h4 align="center"> $${\color{white}𝜗 　　﹒  　READ \space LINK \space BEFORE \space INTERACT \space .　　𝜚}$$ </h3>
 
-  <img src="https://64.media.tumblr.com/afb286640a8dd4399cb6b142d04e7399/402c7acb253d6c2d-cd/s1280x1920/09d1b8a9d00b803433300def4a0e027ff9ac6703.gifv" alt="FLESHBLADE's custom image"/> 
+  <img src="https://media.discordapp.net/attachments/1255187963449704509/1356913443508326451/image.png?ex=67ee4b9f&is=67ecfa1f&hm=e900f2ccf51dbb43b2de1424c556e9e2b79abd2d12d6ea6d3393936875c1aadf&=&format=webp&quality=lossless&width=762&height=656" alt="FLESHBLADE's custom image"/> 
 </div>
 
 　<h4 align="center">﹑　  　[RENTRY](https://rentry.co/cptmc)　﹒ 　[ATABOOK](https://cptmc.atabook.org/)　﹒　[PRNS.PAGE](https://pronouns.cc/@LINKEDGUT)　﹑</h3> 　</h3>
 
  
- <h6 align="center">graphic by sweetnusshoyo on tumblr</h6>
+ <h6 align="center">graphic by deepseawav on X</h6>
 
 ###
