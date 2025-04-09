@@ -4,7 +4,7 @@
 <h4 align="center"> $${\color{white} 　　  　  RENTRY \space BEFORE \space INTERACT \space .　　}$$ </h3>
 
 
-  <img src="https://media.discordapp.net/attachments/1255187963449704509/1356913959436812478/Khong_Co_Tieu_e442_20250402155110.png?ex=67ee4c1a&is=67ecfa9a&hm=0ac6237ee434b935b352bb483cbf667024bb209dcbefd154a89baa5575c5a8ab&=&format=webp&quality=lossless&width=912&height=552" alt="FLESHBLADE's custom image"/> 
+  <img src="https://file.garden/Z5VLhJB-RwipIekD/Kho%CC%82ng%20Co%CC%81%20Tie%CC%82u%20%C4%90e%CC%82%CC%80442_20250402155110.png" alt="FLESHBLADE's custom image"/> 
 </div>
 
 　<h4 align="center">　  　[RENTRY](https://rentry.co/cptmc)　﹒ 　[ATABOOK](https://cptmc.atabook.org/)　﹒　[PRNS.PAGE](https://pronouns.cc/@LINKEDGUT) </h3> 　</h3>
